@@ -8,3 +8,7 @@ Joffrey Baratheon was the one to do Ned in, but his story was only about to begi
 
 
 In an ironic twist of fate, Joffery Baratheon tripped over the Iron Throne, landing on his head and dying.
+
+
+HOWEVER ....
+The immortal gorilla from Joe's story actually catches Joffery, saving him, and they all live happily ever after.
